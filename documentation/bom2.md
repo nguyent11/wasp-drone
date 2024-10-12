@@ -32,3 +32,7 @@
 ### Propeller
 [1045 propeller pack](https://www.amazon.com/dp/B0823NNTKD?psc=1&ref=ppx_yo2ov_dt_b_product_details) (QTY 1)
 
+
+
+## Costs
+Amazon: ~$272
